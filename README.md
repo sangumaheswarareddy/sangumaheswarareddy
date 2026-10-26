@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Mahi!
+# 👋 Hi, I'm sangu.maheswara reddy!
 
 🎓 **B.Tech 2nd Year Student | CSDS**
 
